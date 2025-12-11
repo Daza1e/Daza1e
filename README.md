@@ -1,4 +1,4 @@
-## Hey 👋, I'm Harish Anand !  
+## Hey 👋
   
 
 
